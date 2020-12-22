@@ -40,8 +40,8 @@ INSTALAÇÃO:
 
 ## CARACTERÍSTICAS  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="29px">
 
-| D4RK BOT      |                   Característica        |
-| :-----------: | :------------------------------: |
+| 𝐌𝐀𝐑𝐐𝐔𝐈𝐍ㅤㅤㅤ  |                   Característica        |
+|  :-----------: | :------------------------------: |
 |       ✅       | Criador de adesivos                  |
 |       ✅       | Nulis                            |
 |       ✅       | Covid (Novo)                      |
@@ -77,7 +77,7 @@ INSTALAÇÃO:
 |       ✅       | 18+.                             |
 |       ✅       | MAIS recursos em breve 🍂        |
 
-DARKZIN DOMINA 🐦❤️
+$𝐌𝐀𝐑𝐐𝐔𝐈𝐍 𝐃𝐎𝐌𝐈𝐍𝐀 👨🏿‍💻
 
 <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Gameplay.gif" alt="Mario Game" width="600" />
 
